@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me paulprashannjeet@outlook.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Fast Learner,Team Collab,Hard Working
 
 <!---
 prashannjeet02/prashannjeet02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
